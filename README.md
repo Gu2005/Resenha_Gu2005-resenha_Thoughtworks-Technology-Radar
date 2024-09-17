@@ -1,0 +1,1 @@
+# Resenha_Gu2005-resenha_Thoughtworks-Technology-Radar
